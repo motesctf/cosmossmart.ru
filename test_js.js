@@ -1,0 +1,1 @@
+# cosmossmart.ru\n
